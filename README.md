@@ -1,4 +1,4 @@
-# Hotmart Club - Apresentação da Equipe de Instrutores
+# Apresentação da Equipe de Instrutores
 
 > ## Excerpt
 > Próximo
